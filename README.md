@@ -1,1 +1,3 @@
 # Tercera_preentrega_Colantonio
+
+Proyecto no terminado, mil disculpas...
